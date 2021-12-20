@@ -30,3 +30,8 @@
 ### MES RESEAUX SOCIAUX
 
  1. **Discord** : OTrosh’ᵈˢᵏ#7089
+
+#
+## CREDITS
+
+**Cette page a été inspirée de celle de UTrosh**
