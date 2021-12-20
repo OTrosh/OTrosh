@@ -1,6 +1,7 @@
 # OTrosh
 
-![image](https://user-images.githubusercontent.com/96428446/146786661-b26014bd-d250-4823-89a5-329789452efa.png)
+![kaneki](https://user-images.githubusercontent.com/96428446/146805018-730698d5-1b51-461f-ba9b-930ea3564802.gif)
+
 
 
 # 
